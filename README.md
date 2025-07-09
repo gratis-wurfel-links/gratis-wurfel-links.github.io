@@ -4,9 +4,9 @@
 
 #### Holen Sie sich kostenlose Würfel in Monopoly GO {HACK auf DEUTSCH}
 
-## [KLICKEN SIE HIER](https://monopolyde.netlify.app/)
-## [KLICKEN SIE HIER](https://monopolyde.netlify.app/)
-## [KLICKEN SIE HIER](https://monopolyde.netlify.app/)
+## [KLICKEN SIE HIER](https://sites.google.com/view/mono-de/home)
+## [KLICKEN SIE HIER](https://sites.google.com/view/mono-de/home)
+## [KLICKEN SIE HIER](https://sites.google.com/view/mono-de/home)
 
 Kostenlose Würfel für Monopoly GO findest du genau hier! Mit diesem Monopoly GO Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Würfel generieren und hast deutlich mehr Spaß wie bisher. 
 
